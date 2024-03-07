@@ -1,10 +1,10 @@
-# the GOAT
+# white and green
 
 - sour cream
 - green small pepper
 - shallots
 - paprika powder
 - goat cheese
-- arugula
-- cilantro
+- ruccola
+- avokado 
 - lime
